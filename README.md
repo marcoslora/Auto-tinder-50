@@ -1,2 +1,2 @@
 # Auto-tinder-50
- Auto swipe
+ Auto swipe to get girls
